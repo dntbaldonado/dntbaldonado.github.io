@@ -1,2 +1,0 @@
-# dntbaldonado.github.io
-Portfolio
